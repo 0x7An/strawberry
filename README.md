@@ -56,3 +56,7 @@ Arigatou gozaimasu for following along, and remember: Cooking is all about havin
 **Enjoy your kawaii strawberry pie adventure!** 🌟✨
 
 P.S. #KawaiiCooking #StrawberryPie 💖 
+
+
+
+[Share this YouTube Video on Instagram Story](instagram://story?id=https://www.youtube.com/watch?v=eqjFmsZGBSc)
